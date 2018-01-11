@@ -27,7 +27,7 @@ No!
 ```
 * Can I use it to visit porn site?<br>
 ```
-Yeah,my pleasure
+Yeah,my pleasure!!
 ```
 * Will you record my data?<br>
 ```
